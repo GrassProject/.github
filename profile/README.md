@@ -4,7 +4,7 @@
 # 👉 [Official  Website](https://grassproject.github.io/)
 
 # ✌️Members
-[@jimin](https://github.com/MrJimin)
+[@seojimim0402](https://github.com/seojimim0402)
 
 [@as7ar](https://github.com/as7ar)
 
